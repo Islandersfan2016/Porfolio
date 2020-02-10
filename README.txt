@@ -1,7 +1,3 @@
-Thanks for purchasing the marketing toolkit!
+This is the porfolio of Lamont V. 
 
-Watch the video for step-by-step setup instructions & free hosting option.
 
-See you inside the bootcamp!
-
---Gregory
